@@ -1,4 +1,4 @@
-#  
+#  top grow a garden Script is the best grow a garden Script, featuring speed and auto-sell. Safe and powerful for all your needs.
 
 
 
